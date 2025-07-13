@@ -1,1 +1,2 @@
 # Landing-page
+In this project, we will be making and designing things that you will need. Firstly we will design the items, and when we feel that this will be needed, we will sale the to you! I hope you'll love to buy somethng in our shop.    Thankyou!!!
